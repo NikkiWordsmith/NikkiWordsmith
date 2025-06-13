@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NikkiWordsmith
 - 👀 I’m interested in building up my online shop.
-- 🌱 I’m learning about apps to start my own. 
+- 🌱 I’m learning about apps. 
 - 💞️ I’m looking to collaborate on very simple projects.
 - 📫 How to reach me hello@nikkiwordsmith.com
 - 😄 Pronouns: She/Her/Hers
